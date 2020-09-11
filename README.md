@@ -1,2 +1,2 @@
 # symmetrical-doodle
-Sarah Safwani
+
